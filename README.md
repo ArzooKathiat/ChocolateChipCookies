@@ -1,0 +1,2 @@
+A chocolate chip cookie is a drop cookie that features chocolate chips or chocolate morsels as its distinguishing ingredient.
+this recipie is easy to follow and cuts out all the extravagant ingredients and keeps the dish low-budget
